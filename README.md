@@ -1,8 +1,8 @@
-## hello, i'm tracy!
+## Hello, I'm Tracy!
 
-🌸 i enjoy traveling, trying new restaurants, and gaming!
+🌸 I enjoy traveling, trying new restaurants, and gaming!
 
-🌸 you can reach me by e-mail or through my [LinkedIn](https://www.linkedin.com/in/tracycchang/)
+🌸 You can reach me by e-mail or through my [LinkedIn](https://www.linkedin.com/in/tracycchang/)
 
 
 <!---
